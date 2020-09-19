@@ -31,7 +31,7 @@ venom spits, death for the livin'
 you want out missy
 i can tell you breath in
 poisonous clouds from the self
-thinking it can do better innit
+thinking you can do better innit
 
 let me lay it out 
 let me lay it out 

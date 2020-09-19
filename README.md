@@ -31,15 +31,16 @@ venom spits, death for the livin'
 you want out missy
 i can tell you breath in
 poisonous clouds from the self
-thinking it can do better innit (in it)
+thinking it can do better innit
 
+let me lay it out 
 let me lay it out 
 i've been gone for a while
 let me lay it out
 tying knots for the proud
 
-trippy mind, endless cost for what I'm giving
-your eyesight, foresight melts the ground (met the ground)
+trippy mind, endless cost's what I'm giving
+your eyesight, foresight met the ground (melts)
 till we killin', till we killin'
 
 blaaargh

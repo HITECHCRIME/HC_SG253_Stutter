@@ -12,13 +12,13 @@ Description.
 
 > **Production:**  / **Lyrics:** MOTHNODE
 
-> **Beat:**
+> **Beat:** https://www.youtube.com/watch?v=wqvhRADfe8o
 
 > **Narrative Design:** MOTHNODE
 
-> **Music Video Credits:**
+> **Music Video Credits:** MOTHNODE
 
-https://www.youtube.com/watch?v=wqvhRADfe8o
+
 
 ## Lyrics
 

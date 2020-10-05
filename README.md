@@ -8,9 +8,9 @@
 
 Description.
 
-> **Title:**  / **Featuring:** 
+> **Title:** Stutter / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** 
+> **Production:**  / **Lyrics:** MOTHNODE
 
 > **Beat:**
 

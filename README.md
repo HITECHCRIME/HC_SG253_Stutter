@@ -18,8 +18,6 @@ Description.
 
 > **Music Video Credits:** MOTHNODE
 
-
-
 ## Lyrics
 
 ```

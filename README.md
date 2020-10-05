@@ -10,9 +10,9 @@ Description.
 
 > **Title:** Stutter / **Featuring:** MOTHNODE
 
-> **Production:**  / **Lyrics:** MOTHNODE
+> **Production:** MOTHNODE, unknwnshi / **Lyrics:** MOTHNODE
 
-> **Beat:** https://www.youtube.com/watch?v=wqvhRADfe8o
+> **Beat:** unknwnshi https://www.youtube.com/watch?v=wqvhRADfe8o
 
 > **Narrative Design:** MOTHNODE
 

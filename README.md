@@ -57,7 +57,6 @@ tying knots for the proud
 trippy mind, endless cost for what I'm giving
 your eyesight, foresight melts the ground (met the ground)
 till we killin', till we killin'
-
 ```
 
 ## Lore Notes

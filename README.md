@@ -68,7 +68,7 @@ till we killin', till we killin'
 
 ## Music Video Preview
 
-- during the beginning the teal color lasery dots instead of eyes start dimmly glowing (they disappear as I move the head downwards and it lights a bit the clothing)
+- 0:01-0:05 / during the beginning the teal color lasery dots instead of eyes start dimmly glowing (they disappear as I move the head downwards and it lights a bit the clothing)
 - 
 
 ## Short Cinematic Film

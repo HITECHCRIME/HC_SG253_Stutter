@@ -73,6 +73,7 @@ till we killin', till we killin'
 - 0:21 / moving towards the wall in the back the wall flickers for a moment with reflected glow of the laser eyes booting up
 - 0:25 / the laser eyes boot up finally and they stay on the face (tracking - visual)
 - 0:29 / the lasers are now fully booted and the glow with a piercing light as i look into the camera and then look up at the end of that clip, as i have my head down on the punch down the laser glow flickers as it releases more photons due to emotion
+- 0:39 / as i look to the right, the right side of the wall and side placement of the screen is lit up with a flicker of the teal
 - 
 
 ## Short Cinematic Film

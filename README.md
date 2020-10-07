@@ -70,6 +70,8 @@ till we killin', till we killin'
 
 FIRST OF ALL VISUALLY CUT THE CORNERS IN TRAPESIUM SHAPE DIAGONAL, THIS LOOKS QUITE INTERESTINGWITH BLACK TECHIE CORNERS
 
+TRACKING
+
 - 0:01-0:05 / during the beginning the teal color lasery dots instead of eyes start dimmly glowing (they disappear as I move the head downwards and it lights a bit the clothing)
 - 0:15 / background flashes with the teal color of the lasery eye dots, just for a moment as they boot up
 - 0:21 / moving towards the wall in the back the wall flickers for a moment with reflected glow of the laser eyes booting up

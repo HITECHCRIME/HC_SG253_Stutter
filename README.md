@@ -68,7 +68,7 @@ till we killin', till we killin'
 
 ## Music Video Preview
 
-- FIRST OF ALL VISUALLY CUT THE CORNERS IN TRAPESIUM SHAPE DIAGONAL, THIS LOOKS QUITE INTERESTINGWITH BLACK TECHIE CORNERS
+- FIRST OF ALL VISUALLY CUT THE CORNERS IN TRAPESIUM SHAPE DIAGONAL, THIS LOOKS QUITE INTERESTING WITH BLACK TECHIE CORNERS
 - ADD QR CODE FLASH AT THE BEGINNING AND THE END
 - MAKE A QR CODE 15 SEC STORY
 
@@ -85,3 +85,41 @@ VISUAL TRACKING
 ## Short Cinematic Film
 
 ## Miscellaneous Notes
+
+## Instagram Post Video Snippet
+
+/// Hitech Crime Cinematic Narrative Universe Microlabel presents MOTHNODE_ Stutter, a bonus song snippet for the upcoming wave of dark trap Origin Timeline audiovisual narrative chapters. 
+
+/// Chapter Theme_ Break the ego, bring toxicity to light for a reformative experience and self-realization. 
+
+/// Agent Missions_ Share with your friends, like and save the preview, relisten as much as you want. Thank you for your continuous support during the development of Hitech Crime Universe. Behind the scenes metabrand and music dev has been going from scratch for almost 3 years now. We are building up to break some new frontiers in transmedia, your presence truly means a world to me! ⁣⁣
+
+⁣⁣⁣⁣⁣⁣/// TARGET_ MOTHNODE_ Stutter
+
+⁣⁣⁣⁣⁣⁣/// BEAT_ unknwnshi
+
+⁣⁣/// LYRICAL INSIGHT_⁣⁣⁣ ⁣
+
+blaaargh
+is this what you truly want
+hiss - from the mouth
+venom spits, death for the livin'
+
+you want out missy
+i can tell you breath in
+poisonous clouds from the self
+thinking you can do better innit
+
+let me lay it out 
+let me lay it out 
+i've been gone for a while
+let me lay it out
+tying knots for the proud
+
+trippy mind, endless cost's what I'm giving
+your eyesight, foresight met the ground
+till we killin', till we killin'
+
+#trapmetal #metaltrap #rapshit #alternativerock #jrock #metal #metalindustrial #doomrock #horrorrock #trapmetalbeats #hiphoplife #metalfan #metalcoreband #soundcloudrapper #ghostemane #emo #aesthetic #trap #techwear #darktrap
+
+@mothnode
